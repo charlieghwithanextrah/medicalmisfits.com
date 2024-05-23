@@ -1,2 +1,0 @@
-# medicalmisfits.com
-medicalmisfits.com
